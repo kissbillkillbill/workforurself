@@ -1,4 +1,4 @@
 # workforurself
-the more u do the more u get; 
-1 Do real job what u this benefit to job
+0 tho job belongs to everybody who join us
+1 Do real job what u think benefit to job
 2 who intentional injury the job will be ban FOREVER.
